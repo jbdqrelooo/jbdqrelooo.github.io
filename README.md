@@ -1,1 +1,0 @@
-# jbdqrelooo.github.io
